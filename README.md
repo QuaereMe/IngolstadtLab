@@ -9,5 +9,3 @@ Ingolstadt was closed in 1799 by Prince-Elector Maximilian I of Bavaria.
 Popular Culture:
 Ingolstadt was the university where Mary Shelley's Frankenstein learned chemestry.
 It was also where the monster first breathed...
-
-...to be continued.
